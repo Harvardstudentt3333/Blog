@@ -1,0 +1,2 @@
+# Blog
+Mye personale tougts.
